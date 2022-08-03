@@ -1,0 +1,2 @@
+# turbo-sucotash
+Cože, vy se mě ptáte co se mi zdá divny? Jako vám nepřipadá divný že prostě nejde ten pojebanej účet aktivovat? Tpo je hrozně zajánavý že se to začalo dít až od určitý doby. Před tím šlo všechno. Občas byl nějakej zádrhel, to samozřejm.ě Ale ne tohe. To bude zcela jistě tou píčou děravou zelenou co jste mi tady postavili. Tak jestli tohle má být síť Merkhaba, tak to se fám teda fakt něco  povedlo" 
